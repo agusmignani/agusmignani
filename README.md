@@ -6,6 +6,4 @@ Apasionada por el desarrollo tecnológico y siempre en busca de nuevas oportunid
 
 **Conectemos**
 
-LinkedIn: linkedin.com/in/agustina-mignani-a95548287 
-
 Email: aguusmignani8@gmail.com
